@@ -1,0 +1,1 @@
+# de-mecanismo-autom-tico
